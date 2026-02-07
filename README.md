@@ -1,2 +1,1 @@
-# Texto-juglaresco-en-Eg.939
-Edition of unique work in mss. Eg. 939 from British Library.
+Edición de una obra juglaresca en el manuscrito Eg. 939 de la British Library, siglado por Dutton como "LB3". Anteriormente parte del contenido fue editado por Menéndez Pidal.
